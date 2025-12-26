@@ -6,4 +6,4 @@ URL: https://election69.peoplesparty.or.th/policy/2/D-4
 
 ---
 
-### โครงสร้าง
+
