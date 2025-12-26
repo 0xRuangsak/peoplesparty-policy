@@ -134,7 +134,7 @@ URL: https://election69.peoplesparty.or.th/policy/3/D-4-2
 
  
 
-รายเขตเร็วๆ นี้
 
-บัญชีรายชื่อเร็วๆ นี้
+
+
 

@@ -92,7 +92,7 @@ URL: https://election69.peoplesparty.or.th/policy/4/C-2-1-04
 
 • มาตรการทางการเงิน (Monetary Policy): ใช้ กลไกราคาคาร์บอน (Carbon pricing instrument) เช่น การกำหนดสิทธิการปล่อยคาร์บอนในอุตสาหกรรมหนัก
 
-รายเขตเร็วๆ นี้
 
-บัญชีรายชื่อเร็วๆ นี้
+
+
 
